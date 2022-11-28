@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AVeryTemporaryUser
+- 👀 I’m interested in creating video games
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on nothing rn
+- 📫 How to reach me: my discord username is Pyro Cyclone, and I'll put my number here when I remember it
